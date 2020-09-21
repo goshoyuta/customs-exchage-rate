@@ -1,0 +1,1 @@
+usdjpy history
